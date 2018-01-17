@@ -115,6 +115,15 @@ https://www.youtube.com/watch?v=PDrX7-wOQVA
 36.【實驗室】傑里自製煙霧彈實驗?! 煙霧彈變成閃光彈了?! 可樂煙霧彈實驗! | 
 https://www.youtube.com/watch?v=fFFbiXX7PZ8
 
+37.機械手臂原理
+https://www.youtube.com/watch?v=UJi2rcLGPHo
+
+38.如何從紙板製造液壓動力機器手臂
+https://www.youtube.com/watch?v=_WDA63gWQ4w
+
+39.用木板和針筒自製液壓機械手臂 Hydraulic Powered Robotic Arm DIY玩具 (CC字幕) [小高DIY]
+https://www.youtube.com/watch?v=BMDQ9TbkKzo
+
 LIFE HACKS 1~157
 	01.3 Awesome School Life Hacks[自製畫線器]
 		https://www.youtube.com/watch?v=_bLBrL1vv4A&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=1
