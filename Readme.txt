@@ -213,7 +213,8 @@ LIFE HACKS 1~157
 		https://www.youtube.com/watch?v=INtqDfQKm3E&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=57
 	42.9 Awesome Life Hacks for Battery[自製9V LED照明燈,9V電池扣變身鑰匙收納扣,鐵絲+9V=火柴點火器,9V電池+鐵絲=保麗龍切割器,自製照明帽]
 		https://www.youtube.com/watch?v=uNp8wqzznxk&index=73&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
-		
+	43.14 Awesome Hot Glue Gun Life Hacks[針筒+熱熔膠=螺絲起子握把,熱熔膠把鉛筆變長,熱熔膠+布鞋=鞋底防滑,熱熔膠網狀錢包,熱熔膠菜刀套,熱熔膠+塑膠袋=軟木塞,熱熔膠螢光棒]
+		https://www.youtube.com/watch?v=Shkgs7dExeA&index=80&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
 	
 	
 	
