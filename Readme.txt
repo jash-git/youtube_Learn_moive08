@@ -215,7 +215,12 @@ LIFE HACKS 1~157
 		https://www.youtube.com/watch?v=uNp8wqzznxk&index=73&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
 	43.14 Awesome Hot Glue Gun Life Hacks[針筒+熱熔膠=螺絲起子握把,熱熔膠把鉛筆變長,熱熔膠+布鞋=鞋底防滑,熱熔膠網狀錢包,熱熔膠菜刀套,熱熔膠+塑膠袋=軟木塞,熱熔膠螢光棒]
 		https://www.youtube.com/watch?v=Shkgs7dExeA&index=80&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
-	
+	44.8 Awesome Tic Tac Life Hacks[9V電池+7805 IC=手機充電器,自製酒精打火機(危險)]
+		https://www.youtube.com/watch?v=j7xWSZd2Gqo&index=81&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
+	45.4 Awesome Hot Glue Gun Life Hacks[水銀電池+LED=自製照明帽,水銀電池+LED+熱熔膠=可彎曲螢光棒]
+		https://www.youtube.com/watch?v=u4KIHkcyvas&index=83&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
+	46.2 Awesome Syringe Life Hacks[針筒變氣球充氣工具,液壓飲料機]
+		https://www.youtube.com/watch?v=CoVXcIBtEOA&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=84
 	
 	
 https://www.youtube.com/watch?v=kVQnsGIUEVE&list=PL27Hm5LQ5l87VcOg_bEwqH0qgKOJyMI59
