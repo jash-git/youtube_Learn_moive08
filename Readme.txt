@@ -225,16 +225,20 @@ LIFE HACKS 1~157
 	
 https://www.youtube.com/watch?v=kVQnsGIUEVE&list=PL27Hm5LQ5l87VcOg_bEwqH0qgKOJyMI59
 
-原來電鑽有這麼多妙用，省時省力，不知道太可惜了
+原來電鑽有這麼多妙用01[砂輪機,清潔劑攪拌器,鍵盤清潔電動刷,砂輪履帶]
 	https://www.youtube.com/watch?v=iiusguQ1MDI
+原來電鑽有這麼多妙用02[輕鬆收納鑽頭的方法,電鑽變磨刀石,電鑽變電動起子,電動削鉛筆機反向操作,鋸斷螺絲的標準SOP,電鑽變簡易打蛋器,鐵絲綑綁密技]
 	https://www.youtube.com/watch?v=6ZD1Gtvr9VA
-	https://www.youtube.com/watch?v=DgEkQG6HpbY
+烤肉生火好困難？ 有了這兩樣法寶1分鐘輕鬆搞定	
+	https://www.youtube.com/watch?v=OfivOl2nUw0	
+	
+自動存錢筒
+https://www.youtube.com/watch?v=pRPFAHkld8o
 
 放電
 https://www.youtube.com/watch?v=0XIzp_Jyj6g
 
-自動存錢筒
-https://www.youtube.com/watch?v=pRPFAHkld8o
+
 	
 04.google翻譯 下載mp3
 	https://www.youtube.com/watch?v=rYuYdWc2XBg	
